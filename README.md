@@ -1,3 +1,3 @@
 # kokoa-clone
 
-All the way to the moon 🌚
+To the moon 🌚
